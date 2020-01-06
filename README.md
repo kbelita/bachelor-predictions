@@ -1,3 +1,3 @@
-# Bachelor Predictions Season 24 For Peter the Pilot
+# Bachelor Predictions 
 
 *Most Dramatic Season Yet*
